@@ -1,4 +1,3 @@
-sejam bem vindos ao meu perfil⭐
-                                                                                                                                                                                   estou estudando com a Alura
-
-meu nome é Ester Isabele
+⭐Sejam bem vindos ao meu perfil⭐                                                                                                                          
+                                                                                                                                                                                  
+estou estudando com a Alura                                                                                                                                                                                                                                                                                                                                                    Meu nome é Ester Isabele
